@@ -33,6 +33,8 @@ Join the SUPERPLAYER community and stay updated on all announcements, events, an
 - [Github](https://github.com/BYSUPERPLAYER)
 - [Twitter](https://twitter.com/@superplayer66)
 - [Website](https://superplayer-1i3jek8.gamma.site/)
+- [TG](@SUPERPLAYEROFFICIAL)
+
 
 ---
 
