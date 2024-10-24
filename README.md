@@ -29,7 +29,10 @@ SUPERPLAYER is building a decentralized entertainment ecosystem where every user
 You can buy and sell SUPERPLAYER on decentralized exchanges (DEXs) that support BSC tokens.
 
 ## Community & Support
-Join the SUPERPLAYER community and stay updated on all announcements, events, and discussions:
+Join the SUPERPLAYER community and stay upda- [Github](https://github.com/BYSUPERPLAYER)
+- [Twitter](https://twitter.com/@superplayer66)
+- [Website](https://superplayer-1i3jek8.gamma.site/)
+- [TG](@SUPERPLAYEROFFICIAL)ted on all announcements, events, and discussions:
 - [Github](https://github.com/BYSUPERPLAYER)
 - [Twitter](https://twitter.com/@superplayer66)
 - [Website](https://superplayer-1i3jek8.gamma.site/)
